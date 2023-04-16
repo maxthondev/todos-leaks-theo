@@ -1,5 +1,4 @@
-# todos-leaks-theo
-fiquei com preguiça de upar ent baixem ai
+# Fiquei com preguiça de upar no Git entao baixem pelo media!
 https://www.mediafire.com/file/tnsrve5mi8lxg8t/leaguemc_-_src.zip/file 
 https://www.mediafire.com/file/0num3ifcflqk4ms/dustmc-master.rar/file
 https://www.mediafire.com/file/hpjremtbiole4zd/arcade-backup.rar/file
